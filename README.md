@@ -1,0 +1,1 @@
+# diktatorparti.github.io
